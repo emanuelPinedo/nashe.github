@@ -1,2 +1,2 @@
-# pruebanashe.github
+# pruebanashe-github
 no se amigo jaja
